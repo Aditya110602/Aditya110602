@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Msc-cs 
 - 💞️ I’m looking to collaborate with Anyone 
 - 📫 How to reach me adityamisal110602@gmail.com
-- 😄 Pronouns: ADiii
+- 😄 Pronouns: Adiii
 - ⚡ Fun fact: i am ready to work with u
 
 <!---
